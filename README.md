@@ -56,7 +56,7 @@ CAN///UKR (just not like this ship )
 
 PLS INT
 
-=> ♡When you are sociable and don't suffer from any of the above INT, I hope u can be my friend i want a friend who can sit with me while playing.♡
+=> ♡When you are sociable and don't suffer from any of the above DNI, I hope u can be my friend i want a friend who can sit with me while playing.♡
 
 OTP Please marry me if we are in the same ship <3333
 
