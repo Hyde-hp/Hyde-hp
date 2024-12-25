@@ -102,6 +102,7 @@ OTP Please marry me if we are in the same ship <3333
 ..=...=..=..=
 
 ---> SAY YES WITH VIETNAM TOP
+![image](https://github.com/user-attachments/assets/9ac9935d-e087-424f-9ef9-1ce0615d2272)
 
 ........
 
