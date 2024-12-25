@@ -43,13 +43,16 @@ SOV///NAZ//SOV ( ewww what? your ship makes me nauseous )
 
 ALL////VIETNAM ( I'm allergic to Vietnam being bottom and shipdom really makes me uncomfortable )
 
-MTTL///MT ( i hate this ship )
+🇮🇱///🇯🇴 (???GO TO HELL)
 
-US///UK ( This is not a matter of incest, never say this ship in front of me )
+🇹🇷///🇬🇷 (NAH)
 
-USSRUK ( ??? )
+🇷🇺///🇺🇦 (NO)
 
-CAN///UKR (just not like this ship )
+🇷🇺///🇲🇽 
+....
+...
+..
 
 --->SAY NO WITH BOTTOM USSR
 
@@ -63,15 +66,24 @@ PLS INT
 
 OTP Please marry me if we are in the same ship <3333
 
-MEXxUSA ( ofc I have nothing to say, I love this ship so much )
-
-USSR/RUSSIAxCHINA ( Xd )
-
-USSRUSA (toxic relationships, enemy relationship )
-
-UKxFRxUK ( Hardship and i can eat switch )
-
-VIETxS.Korea ( hshshshs pls married me when u ship them <333 )
+-🇲🇽🇺🇸  ( ofc I have nothing to say, I love this ship so much )
+-🇷🇺🇨🇳
+-🇻🇳🇰🇷
+-🇹🇼🇯🇵
+-🇩🇪🇮🇹
+-🇨🇦🇳🇱
+-🇸🇪🇫🇮
+[Hardship]
+-🇬🇧🇫🇷 (ok with switch)
+-🇵🇹 🇪🇸
+-🇬🇧🇪🇸
+-🇦🇷🇨🇱
+-🇨🇺🇻🇪
+-🇧🇷🇵🇪
+-🇰🇿🇺🇦
+-All🇺🇸
+-🇻🇳All
+..=...=..=..=
 
 ---> SAY YES WITH VIETNAM TOP
 
