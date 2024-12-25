@@ -68,20 +68,35 @@ OTP Please marry me if we are in the same ship <3333
 
 -🇲🇽🇺🇸  ( ofc I have nothing to say, I love this ship so much )
 -🇷🇺🇨🇳
+
 -🇻🇳🇰🇷
+
 -🇹🇼🇯🇵
+
 -🇩🇪🇮🇹
+
 -🇨🇦🇳🇱
+
 -🇸🇪🇫🇮
+
 [Hardship]
+
 -🇬🇧🇫🇷 (ok with switch)
+
 -🇵🇹 🇪🇸
+
 -🇬🇧🇪🇸
+
 -🇦🇷🇨🇱
+
 -🇨🇺🇻🇪
+
 -🇧🇷🇵🇪
+
 -🇰🇿🇺🇦
+
 -All🇺🇸
+
 -🇻🇳All
 ..=...=..=..=
 
