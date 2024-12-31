@@ -43,13 +43,13 @@ SOV///NAZ//SOV ( ewww what? your ship makes me nauseous )
 
 ALL////VIETNAM ( I'm allergic to Vietnam being bottom and shipdom really makes me uncomfortable )
 
-🇮🇱///🇯🇴 (???GO TO HELL)
+Isa///Pales (???GO TO HELL)
 
-🇹🇷///🇬🇷 (NAH)
+Tur///Greece (NAH)
 
-🇷🇺///🇺🇦 (NO)
+Rus///Ukr (NO)
 
-🇷🇺///🇲🇽 
+Rus///Mex (GET OUT)
 ....
 ...
 ..
@@ -66,39 +66,39 @@ PLS INT
 
 OTP Please marry me if we are in the same ship <3333
 
--🇲🇽🇺🇸  ( ofc I have nothing to say, I love this ship so much )
+-MexUsa  ( ofc I have nothing to say, I love this ship so much )
 
--🇷🇺🇨🇳
+-RusChi
 
--🇻🇳🇰🇷
+-VN.Korea
 
--🇹🇼🇯🇵
+-TaiJap
 
--🇩🇪🇮🇹
+-GerIta
 
--🇨🇦🇳🇱
+-CanNerth
 
--🇸🇪🇫🇮
+-SweFin
 
 [Hardship]
 
--🇬🇧🇫🇷 (ok with switch)
+-UkFr (ok with switch)
 
--🇵🇹 🇪🇸
+-PorSpain
 
--🇬🇧🇪🇸
+-ArgenChile
 
--🇦🇷🇨🇱
+-UkSpain
 
--🇨🇺🇻🇪
+-CubaVene
 
--🇧🇷🇵🇪
+-BraPer
 
--🇰🇿🇺🇦
+-KazhUkr
 
--All🇺🇸
+-AllUsa
 
--🇻🇳All
+-VnAll
 ..=...=..=..=
 
 ---> SAY YES WITH VIETNAM TOP
