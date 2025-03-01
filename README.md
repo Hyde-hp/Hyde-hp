@@ -50,6 +50,7 @@ Tur///Greece (NAH)
 Rus///Ukr (NO)
 
 Rus///Mex (GET OUT)
+
 ....
 ...
 ..
@@ -70,7 +71,7 @@ OTP Please marry me if we are in the same ship <3333
 
 -RusChi
 
--VN.Korea
+-VietS.Korea
 
 -TaiJap
 
