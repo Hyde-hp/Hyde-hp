@@ -64,7 +64,7 @@ My big love for UKUS
 ![Image](https://github.com/user-attachments/assets/c3c98779-f823-4754-b9d3-f9ac4f3c9665)
 
 
-[my commission Do not take it anywhere without my permission!!]
+[commission Do not take it anywhere without my permission!!]
 
 
 ![Image](https://github.com/user-attachments/assets/35931be2-15e3-464a-baa8-3d6fbda33504)
