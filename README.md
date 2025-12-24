@@ -78,7 +78,7 @@ silies
 
 Thanks for reading have a nice day.<3
 
-![Image](https://github.com/user-attachments/assets/75fe9eac-2e9b-4007-abe4-5c9916cec060)
+![Image](https://github.com/user-attachments/assets/987a12be-46e1-4e2e-b850-596909f67b53)
 
 (not mine! artist https://x.com/Xgecko_2319/media
 
