@@ -54,7 +54,7 @@ I love MexUsa so much!!!, if you don't like it, just DNI me!! Don't try to piss 
 
 ![Image](https://github.com/user-attachments/assets/75fe9eac-2e9b-4007-abe4-5c9916cec060)
 
-(My AUs)
+(My MexUsa AUs)
 
 
 
