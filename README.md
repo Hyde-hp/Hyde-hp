@@ -74,8 +74,13 @@ My big love for UKUS
 silies
 
 (All these images belong to me and are my property!! Please do not take them anywhere without my permission!!)
+
+
 Thanks for reading have a nice day.<3
 
+![Image](https://github.com/user-attachments/assets/75fe9eac-2e9b-4007-abe4-5c9916cec060)
+
+(not mine! artist https://x.com/Xgecko_2319/media
 
 
 
