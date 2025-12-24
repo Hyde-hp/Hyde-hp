@@ -1,7 +1,7 @@
 
 𝖂𝖍𝖆𝖙 𝖉𝖔 𝖜𝖊 𝖍𝖆𝖛𝖊 𝖍𝖊𝖗𝖊? 𝖆 𝖘𝖙𝖆𝖑𝖐𝖊𝖗
 
-![image](https://github.com/user-attachments/assets/d52f0d1f-c8a7-421a-95ad-8a367eef034c)
+![Image](https://github.com/user-attachments/assets/b9654954-8faf-4a0f-a886-a022f7af5124)
 
 🎉✨ Welcome to my Github! ✨🎉
 
@@ -9,17 +9,7 @@ Hi! There stalker
 
 Just call me Hyde or Rio
 
-I'm From Vietnam
-
-An avid simp Xd
-
-Bad at English I will try to understand what you said but I hope you can repeat the word, Recently I started learning Spanish hoping to get to know you
-
-Love 𝘾𝙪𝙙𝙙𝙡𝙚, You can cuddle me anytime you want (But please ask my permission first )
-
-_WARNING_ : TOXIC (( If you have problems or discomfort with this please DNI ))
-
-If you have anti-LGBT behavior or discrimination, stay away from me
+I'm From Vietnam (i love my country sm <3)
 
 + ♡ PONY TOWN ♡ +
 
@@ -27,118 +17,60 @@ If you have anti-LGBT behavior or discrimination, stay away from me
 
 !! Do not copy my skin !! If you want to get ideas please ask my permission first.
 
-///★ FANDOM ★///
 
-I participate in quite a few fandoms (GI, COD, CRK, AT...) but the one I'm most active in is CHs, I love this fandom so much but some elements in here make me cringe a lot 💀
+
+
+///★ FANDOM ★///
 
 💭COUNTRYHUMANS💭
 
 PLS DNI
-
 => When you do any pro-fascist actions, please stay away from me if you don't want me to offend you. 𝙥𝙚𝙤𝙥𝙡𝙚 𝙬𝙝𝙤 𝙠𝙞𝙣 𝙘𝙤𝙪𝙣𝙩𝙧𝙮,𝙘𝙤𝙨𝙥𝙡𝙖𝙮 𝙖𝙨 𝙃𝟏𝙡𝙩𝙚𝙧,𝙃𝙞𝙧𝙤𝙝𝙡𝙩 𝙤,𝙢𝙪𝙨𝙨𝙤𝙡𝟏𝙣𝙞( 𝙝𝙖𝙩𝙚 𝙮'𝙖𝙡𝙡 𝙛𝙤𝙧 𝙢𝙮 𝙡𝙞𝙛𝙚 )<𝟑
 
-NOTP Sorry for being selfish, but I also have my own ship. If this is your ship, please don't talk to me.
-
-SOV///NAZ//SOV ( ewww what? your ship makes me nauseous )
-
-ALL////VIETNAM ( I'm allergic to Vietnam being bottom and shipdom really makes me uncomfortable )
-
-Isa///Pales (???GO TO HELL)
-
-Tur///Greece (NAH)
-
-Rus///Ukr (NO)
-
-Rus///Mex (GET OUT)
-
-....
-...
-..
-
---->SAY NO WITH BOTTOM USSR
-
---->SAY NO WITH TOP USA
-
-.....
-
-PLS INT
-
-=> ♡When you are sociable and don't suffer from any of the above DNI, I hope u can be my friend i want a friend who can sit with me while playing.♡
-
-OTP Please marry me if we are in the same ship <3333
-
--MexUsa  ( ofc I have nothing to say, I love this ship so much )
-
--RusChi
-
--VietS.Korea
-
--TaiJap
-
--GerIta
-
--CanNerth
-
--SweFin
-
-[Hardship]
-
--UkFr (ok with switch)
-
--PorSpain
-
--ArgenChile
-
--UkSpain
-
--CubaVene
-
--BraPer
-
--KazhUkr
-
--AllUsa
-
--VnAll
-..=...=..=..=
-
----> SAY YES WITH VIETNAM TOP
+CHs shipping chart
 
 
-![image](https://github.com/user-attachments/assets/9ac9935d-e087-424f-9ef9-1ce0615d2272)
+![Image](https://github.com/user-attachments/assets/f2ad0059-d1c4-488b-81ef-2f93679b8a9e)
+
+
+MexUsa = Mexico (top) America (bottom) no switch!
+
+I love MexUsa so much!!!, if you don't like it, just DNI me!! Don't try to piss me off, I don't mind cursing at you.
 
 
 
-........
+![Image](https://github.com/user-attachments/assets/3f35be7c-66dc-48cc-bb5a-d027d18b1675)
 
-☾⋆⁺₊⋆HETALIA/ APH☾⋆⁺₊⋆
+[Commission Do not take it anywhere without my permission!!]
 
-PLS DNI
+![Image](https://github.com/user-attachments/assets/1000e584-5004-4443-a930-a117410210f8)
 
-=> I will never accept shipping Alfred as TOP so if you do then don't even start a conversation with me
+![Image](https://github.com/user-attachments/assets/c24bfb76-b926-427d-8f45-281a14d451a8)
 
-NOTP
+![Image](https://github.com/user-attachments/assets/223a7660-5c0a-46fc-9b0b-d4e19b6a9e5e)
 
-US//////UK (ya know what i mean right?)
+(my man <333)
 
-PLS INT
 
-=> If you love Alfred and love him, please marry me <333 our boy I'm ready to share.
 
-OTP
 
-UKUS (Please don't say that they are brothers in front of me. For me, England only adopted America, never argue that even though they are still brothers, I won't hesitate to curse you.)
 
-ALLUS
+~ 𝓗𝓮𝓽𝓪𝓵𝓲𝓪 ~
+![Image](https://github.com/user-attachments/assets/71362891-04cf-4fdf-95d7-491f33735127)
 
------------
+My big love for UKUS 
 
-Other couples are not my problem, I'm fine with that
+![Image](https://github.com/user-attachments/assets/c3c98779-f823-4754-b9d3-f9ac4f3c9665)
 
-==================================
 
-I will only say this much, I will update more
+[my commission Do not take it anywhere without my permission!!]
 
+
+![Image](https://github.com/user-attachments/assets/35931be2-15e3-464a-baa8-3d6fbda33504)
+
+silies
+
+(All these images belong to me and are my property!! Please do not take them anywhere without my permission!!)
 Thanks for reading have a nice day.<3
 
 
