@@ -37,8 +37,8 @@ CHs shipping chart
 MexUsa = Mexico (top) America (bottom) no switch!
 
 I love MexUsa so much!!!, if you don't like it, just DNI me!! Don't try to piss me off, I don't mind cursing at you.
-
-
+MÀY ĐỤC SHIP TAO, TAO ĐỤC DÁI CHẾT CON MẸ MÀY (Translate it)
+If you don't like my ship then get lost, I don't give a fuck, Touch my ship and I'll punch the hell out of you.
 
 ![Image](https://github.com/user-attachments/assets/3f35be7c-66dc-48cc-bb5a-d027d18b1675)
 
