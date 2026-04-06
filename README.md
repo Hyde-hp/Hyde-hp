@@ -23,7 +23,7 @@ I'm From Vietnam (i love my country sm <3)
 
 ///★ FANDOM ★///
 
-💭COUNTRYHUMANS💭
+💭COUNTRYHUMANS💭 (rest)
 
 PLS DNI
 => When you do any pro-fascist actions, please stay away from me if you don't want me to offend you. 𝙥𝙚𝙤𝙥𝙡𝙚 𝙬𝙝𝙤 𝙠𝙞𝙣 𝙘𝙤𝙪𝙣𝙩𝙧𝙮,𝙘𝙤𝙨𝙥𝙡𝙖𝙮 𝙖𝙨 𝙃𝟏𝙡𝙩𝙚𝙧,𝙃𝙞𝙧𝙤𝙝𝙡𝙩 𝙤,𝙢𝙪𝙨𝙨𝙤𝙡𝟏𝙣𝙞( 𝙝𝙖𝙩𝙚 𝙮'𝙖𝙡𝙡 𝙛𝙤𝙧 𝙢𝙮 𝙡𝙞𝙛𝙚 )<𝟑
@@ -63,7 +63,7 @@ If you want to pick a fight with me, go to my Facebook page, and I'll show you w
 
 
 
-~ 𝓗𝓮𝓽𝓪𝓵𝓲𝓪 ~
+~ 𝓗𝓮𝓽𝓪𝓵𝓲𝓪 ~ (rest)
 ![Image](https://github.com/user-attachments/assets/71362891-04cf-4fdf-95d7-491f33735127)
 
 My big love for UKUS 
